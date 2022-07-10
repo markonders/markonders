@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @markonders
-- 👀 Some of my current hobbies include activities such as skiing, hiking, gaming, watching and analyzing film, and many different sports!
+- 👀 Some of my current hobbies include activities such as skiing, hiking, gaming, and many different sports!
 - 🌱 I’m currently learning applied math and data science at the University of Notre Dame.
 - 💞️ I’m looking to collaborate on any tech projects!
 - 📫 How to reach me: Phone: (234)-284-5079   Email: mconders@gmail.com
